@@ -9,10 +9,6 @@ Crafted with precision using UI/UX principles, the design combines striking visu
 
 
 
-![image](https://github.com/Ak3001/parallex_Scrolling/assets/149374289/69ed5c2b-9436-442f-b9a4-143191c1b56b)
-
-
-
 
 
 
