@@ -18,7 +18,6 @@ Crafted with precision using UI/UX principles, the design combines striking visu
 
 
 
-CHECK THIS OUT:https://www.figma.com/file/Vn4tIbwsryVZqGuj2jmAiK/PARALLEX?type=design&node-id=0%3A1&mode=design&t=fHJCPBJ4vQAYmrQe-1v
 
 
 
